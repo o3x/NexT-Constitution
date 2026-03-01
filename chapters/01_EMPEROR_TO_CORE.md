@@ -3,7 +3,7 @@
 バージョン: v0.1.1 (Draft)
 -->
 
-# 第一章：宇宙的象徴と核心原則 (Draft)
+# 第一章：日本国民と天皇 (Draft)
 
 <details>
 <summary>👀【日本国憲法原文(1, 2, 3)】</summary>
